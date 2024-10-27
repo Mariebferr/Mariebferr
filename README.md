@@ -10,6 +10,5 @@ Meu nome é Maria Eduarda
 
 maryjji777@gmail.com
 
-@txz.mary
 
 ![](https://media.tenor.com/Vr4i4vq7XaIAAAAi/bts.gif)
